@@ -1,1 +1,1 @@
-# ma.maarif1jombang.github.io
+# maarif1jombang.github.io/web-ma
